@@ -1,0 +1,1 @@
+An analysis of 2009-2020 meme trends based on data from knowyourmeme.
